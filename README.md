@@ -1,3 +1,3 @@
 Questoões P1
- Trabalho com finaldiade academicas. 
+ Trabalho com finalidiade academicas. 
  Professor Brenno
